@@ -49,27 +49,5 @@ Explore GitHub profiles, repositories, and trending projects effortlessly with t
 ![Screenshot 2024-12-21 113353](https://github.com/user-attachments/assets/3d1470f5-9b6a-417d-8237-e26666cbe9db)
 ![Screenshot 2024-12-21 113457](https://github.com/user-attachments/assets/3cf47c42-19c5-4f7c-ad0b-af69c6bbc059)
 ![Screenshot 2024-12-21 113550](https://github.com/user-attachments/assets/c9df9bf7-8bdb-4855-ad09-a68fe23ab64e)
+![Screenshot 2024-12-21 115506](https://github.com/user-attachments/assets/3ec617a5-3c71-45f3-a0e4-44fdf3b4112e)
 ![Screenshot 2024-12-21 113650](https://github.com/user-attachments/assets/fe37db8b-9e53-4f3b-bc2a-163f65139b4f)
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
